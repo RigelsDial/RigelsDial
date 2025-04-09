@@ -1,5 +1,5 @@
 # 
-<br> ╳ $${\color{lightgreen}Rigel}$$ or any nickname works | he/him/name only | 15 | numinous (outerworldly, in a specimen ![SMILE2_optimized](https://github.com/user-attachments/assets/7d0a2e2f-20e8-4066-971a-486d437407cd) way) body ╳
+<br> ╳ $${\color{lightgreen}Rigel}$$ or any nickname works | he/him/name only | 15 | outerworldly, in a specimen ![SMILE2_optimized](https://github.com/user-attachments/assets/7d0a2e2f-20e8-4066-971a-486d437407cd) way ╳
 <br> ┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 ![Image](https://github.com/user-attachments/assets/76c7f065-6fc8-40a8-989a-910fafebd1ff)
 <br> ┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
